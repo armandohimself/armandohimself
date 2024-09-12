@@ -1,4 +1,5 @@
 
-![Armando Arteaga](https://github.com/user-attachments/assets/87ba1c07-bc9e-4a0f-acbe-f2740e9cabe6)
+![Armando Arteaga](https://github.com/user-attachments/assets/7146e26f-fe0e-4896-af71-7bba3d51489f)
 
 <hr>
+
